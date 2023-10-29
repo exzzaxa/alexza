@@ -1,2 +1,2 @@
 # alexza
-maganda 
+Lns
